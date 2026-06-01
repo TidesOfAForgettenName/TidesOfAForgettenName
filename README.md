@@ -1,16 +1,19 @@
-## Hi there 👋
+## H a i a i ! !
 
 <!--
-**TidesOfAForgettenName/TidesOfAForgettenName** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**TidesOfAForgettenName/TidesOfAForgettenName**
+<img width="1000" height="450" alt="Untitled21_20260502124945" src="https://github.com/user-attachments/assets/9974c036-a517-4ece-a2f0-bc9cc4b7c5e8" />
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+ ⁎⠀⁺⠀˖⠀![](https://i.postimg.cc/wMxKTjFF/coral.gif)⠀renryn / zelei⠀˓⠀✶⠀ ࣪ ˖⠀he / him⠀˖⠀!!⠀![](https://i.postimg.cc/FsWvz3MS/wave.gif)⠀◟
+![](https://i.postimg.cc/y82zXBYY/fish.gif)⠀✦⠀⁺⠀◟transmasc / demi aroace⠀![](https://i.postimg.cc/5NN1fnR1/jelly.gif)⠀𓏲⠀ ๋࣭ ⠀⁎⠀male⠀⊹⠀.
+⊹⠀˚⠀₊ ISTP/INTJ⠀![](https://i.postimg.cc/Gm4Cy9R5/shell.gif)⠀₍ᐢ..ᐢ₎⠀˖⠀⭑⠀5teen yrs⠀‧⠀₊<img width="26" height="26" alt="ok3no6" src="https://github.com/user-attachments/assets/ef4480be-ef75-4071-b5ca-13cea227ebd6" /><img width="26" height="26" alt="9mzhl0" src="https://github.com/user-attachments/assets/e07ffd43-0203-43f9-87a4-3b02de4cdff0" /><img width="180" height="24" alt="zn4qlb" src="https://github.com/user-attachments/assets/d937acc6-0a55-4b5f-956d-0686333c0c97" /> .⠀𓏲⠀ ๋࣭ ⠀⁎⠀
+![](https://i.postimg.cc/XJbSm8CR/jellyfish.gif) .⠀𓏲⠀ ๋࣭ ⠀⁎⠀
+![](https://i.postimg.cc/VNH0FJ00/neuvmid.png)     
+![](https://i.postimg.cc/HWtdGf3B/seaweed.gif)⠀neuvi fictkin⠀๑⠀⋅⠀˚⠀₊⠀SYS/sensitive⠀₊⠀˚⠀ᡣ𐭩
+![](https://i.postimg.cc/B6B90K5X/longfish.gif)⠀˚⠀⋆⠀୨ . Neuvillone CEO / tkn by kiel . ୧⠀⋆⠀![](https://i.postimg.cc/N0TvdV58/dolphin.gif)⠀⠀₊⠀˚⠀ᡣ𐭩˚kisses 4⠀K , C , M , V , KS ⠀꒷꒦
+<img width="1280" height="192" alt="Untitled20_20260501235947" src="https://github.com/user-attachments/assets/c3c95a65-a77f-4442-9e22-5fbe708a059f" />
+ ⁎⠀⁺⠀˖⠀![](https://i.postimg.cc/wMxKTjFF/coral.gif)⠀fandoms / interests ⠀˓⠀✶⠀ ࣪ ˖![](https://i.postimg.cc/y82zXBYY/fish.gif)⠀✦⠀⁺ hyv⠀˓⠀✶⠀ ࣪ ˖ ![](https://i.postimg.cc/XJbSm8CR/jellyfish.gif) ✦⠀⁺ harry potter⠀˓⠀✶⠀ ࣪ ˖ ![](https://i.postimg.cc/FsWvz3MS/wave.gif)⠀✦⠀⁺ dandy' world⠀˓⠀✶⠀ ࣪ ˖![](https://i.postimg.cc/N0TvdV58/dolphin.gif) ✦⠀⁺ pjsk⠀˓⠀✶⠀ ࣪
+ 
