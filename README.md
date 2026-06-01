@@ -20,13 +20,12 @@
 >   <3　﹒ 　︵︵      *neu*__vi__*lette* *__fictkin* !˖⠀![.](https://i.postimg.cc/y82zXBYY/fish.gif) .____    　﹒ 　︵︵  *spe*__ar__ __use__*r* .﹢﹒░﹑⬦﹒ *fon*__tain__*ian*/__li__*yua*__n__
 　 ﹒ 　　𓏹ㅤ *cha*__rl__*otte* & **pant*a*__lo__*ne*~yume* .____    　◞﹒◟◝﹒◜﹒ 　︵︵            *meteor*__ologist__ 🌧️ .       　﹒ 　. 
 
-𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
+𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
 
-　 ﹒ 　　𓏹ㅤ *wou*__ld__ *you* __die__ *to*__night_ 4_ *lo* __ve_ **?**
+　 ﹒ 　　𓏹ㅤ *OH* __go__*d* __I'm_ **beautiful*. OH *go*__d__ I'm __wonderful__ , *I'm* __marvelous__, *intell*__igent__  . __SO__ __WHY__ __DOESNT__ *THAT* __MA__*KE* ME __FEEL__ **BETTER** 
 
- 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
+ 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
 
- ◞﹒◟◝﹒◜ *PRO*__UD__ *PANT*__ALLETTE__ __CEO__
 
- 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
- 
+
+ ◞﹒
