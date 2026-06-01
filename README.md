@@ -6,7 +6,7 @@
 > 
 > ﹑　 ཀ 　　﹒ 　yumeshipper    　　
 　✦     *rivo*__le__*t* : *__~~zelei__* **!**　　  　◞ __int__ *po*__ly__ __yume__
-> ✦　　౨౿　   ____    　﹒ 　︵︵ ![.](https://i.postimg.cc/FsWvz3MS/wave.gif)
+> ✦　　౨౿　   ____    　﹒ 　︵︵ ![.](https://i.postimg.cc/FsWvz3MS/wave.gif) .  　𓏵 __  . * __malay__*sian* __!__
 > 
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
 > 
@@ -16,7 +16,7 @@
 > 
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
 > 
->   <3　﹒ 　︵︵      *neu*__vi_*lette* *__fictkin* !˖⠀![.](https://i.postimg.cc/y82zXBYY/fish.gif)
+>   <3　﹒ 　︵︵      *neu*__vi__*lette* *__fictkin* !˖⠀![.](https://i.postimg.cc/y82zXBYY/fish.gif)
 >
 
 　 ﹒ 　　𓏹ㅤ *cha*__rl__*otte* & **pant*a*__lo__*ne*~yume*
