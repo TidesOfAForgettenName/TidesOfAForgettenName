@@ -18,7 +18,7 @@
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
 > 
 >   <3　﹒ 　︵︵      *neu*__vi__*lette* *__fictkin* !˖⠀![.](https://i.postimg.cc/y82zXBYY/fish.gif) .____    　﹒ 　︵︵  *spe*__ar__ __use__*r* .﹢﹒░﹑⬦﹒ *fon*__tain__*ian*/__li__*yua*__n__
-　 ﹒ 　　𓏹ㅤ *cha*__rl__*otte* & **pant*a*__lo__*ne*~yume* .____    　◞﹒◟◝﹒◜﹒ 　︵︵ **meteor**__ologist__
+　 ﹒ 　　𓏹ㅤ *cha*__rl__*otte* & **pant*a*__lo__*ne*~yume* .____    　◞﹒◟◝﹒◜﹒ 　︵︵ *meteor*__ologist__ 🌧️ .
 
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
 
