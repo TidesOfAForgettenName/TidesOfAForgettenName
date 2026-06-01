@@ -12,4 +12,4 @@
 ૮꒰ྀི  ^ v ^  ꒱ྀིა⠀⠀𓎢𓎟𓎟𓎡
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
 >   <3　﹒ 　︵︵
-　 ﹒ 　　𓏹ㅤ *cha*__rl__*otte* & **pant*a*__lo__*ne* ~~yume*
+　 ﹒ 　　𓏹ㅤ *cha*__rl__*otte* & **pant*a*__lo__*ne*~yume*
