@@ -1,7 +1,9 @@
 ## H a i a i ! !
 
+
 <!--
 **TidesOfAForgettenName/TidesOfAForgettenName**
+
 <img width="1000" height="450" alt="Untitled21_20260502124945" src="https://github.com/user-attachments/assets/9974c036-a517-4ece-a2f0-bc9cc4b7c5e8" />
 
 
