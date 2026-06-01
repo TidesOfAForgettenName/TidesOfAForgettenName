@@ -1,4 +1,15 @@
-H a i a i ! !
+﹑⟡ 　　﹒ 　 [~~__**ki**__~~el]’s　﹒　~~*i*nt~~*ro*  ◞　 
+> 　　　　   *__trans__*gen**der** ⠀　﹒ 　⠀**__h*e*/ him__**　
+✦　　౨౿　__art__*ist*     <3　﹒ 　︵︵
+　 ﹒ 　　𓏹ㅤ
+𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
+> ﹑　 ཀ 　　﹒ 　yumeshipper    　　♰
+⤷　　✙　     *rivo*__le__t : *__~~zelei__* **!**　　  　◞
+> ✦　　౨౿　   ____    　﹒ 　︵︵
+◜ 　﹒ 　      __　𓏵
+𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
+> ⊹ 　﹒    　　❀
+૮꒰ྀི  ^ v ^  ꒱ྀིა⠀⠀𓎢𓎟𓎟𓎡
 
 
  ⁎⠀⁺⠀˖⠀![](https://i.postimg.cc/wMxKTjFF/coral.gif)⠀rivolett / zelei⠀˓⠀✶⠀ ࣪ ˖⠀he / him⠀˖⠀!!⠀![](https://i.postimg.cc/FsWvz3MS/wave.gif)⠀◟
