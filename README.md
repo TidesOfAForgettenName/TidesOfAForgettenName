@@ -1,6 +1,6 @@
 H a i a i ! !
 
-<img width="1000" height="450" alt="Untitled21_20260502124945" src="https://github.com/user-attachments/assets/9974c036-a517-4ece-a2f0-bc9cc4b7c5e8" />
+
  ⁎⠀⁺⠀˖⠀![](https://i.postimg.cc/wMxKTjFF/coral.gif)⠀renryn / zelei⠀˓⠀✶⠀ ࣪ ˖⠀he / him⠀˖⠀!!⠀![](https://i.postimg.cc/FsWvz3MS/wave.gif)⠀◟
 ![](https://i.postimg.cc/y82zXBYY/fish.gif)⠀✦⠀⁺⠀◟transmasc / demi aroace⠀![](https://i.postimg.cc/5NN1fnR1/jelly.gif)⠀𓏲⠀ ๋࣭ ⠀⁎⠀male⠀⊹⠀.
 ⊹⠀˚⠀₊ ISTP/INTJ⠀![](https://i.postimg.cc/Gm4Cy9R5/shell.gif)⠀₍ᐢ..ᐢ₎⠀˖⠀⭑⠀5teen yrs⠀‧⠀₊<img width="26" height="26" alt="ok3no6" src="https://github.com/user-attachments/assets/ef4480be-ef75-4071-b5ca-13cea227ebd6" /><img width="26" height="26" alt="9mzhl0" src="https://github.com/user-attachments/assets/e07ffd43-0203-43f9-87a4-3b02de4cdff0" /><img width="180" height="24" alt="zn4qlb" src="https://github.com/user-attachments/assets/d937acc6-0a55-4b5f-956d-0686333c0c97" /> .⠀𓏲⠀ ๋࣭ ⠀⁎⠀
