@@ -40,3 +40,30 @@
   <summary>dni</summary>
   <p>basic dni criteria , 25+ ,-12 , overly non-sharing yumes .Homophobia, racism, etc. Incest/proshippers ||R*pe|| , ||suicide|| jokes. Heavily religious people. spawnism/meowism . Fetishize lgbtqia+ ships. rarepairs haters ( you guys are no fun ).  really horny ppl . scaralumi/scaraether haters </p>
 </details>
+
+<details>
+  <summary>About me</summary>
+  <p>Positives about me !
+  
+  • I really like talking 2 people 
+  • I love drawing , dragons and villains ! ( this is heavily targeted to neuvillette, zhongli , pantalone and dottore )
+  • I DO COMMISSIONS SO PLS COMMISSIONS ME EBEJJAJAKAKAK
+  • I'm taken :3 
+  • I'm a nerd for my main fandoms and will yap for two hours
+  • i prefer talking in whisps and silence 
+  • i will draw your oc when i have the time 
+  
+  Negatives about me
+  
+  • I struggle with suicide thoughts 
+  • i have extreme body dysphoria 
+  • i suffer with isolation 
+  • im heavily insensitive sometimes 
+  • I don't really know how to express myself 
+  • i struggle with self love
+  • i'm really sarcastic 
+  • crybaby boohoo
+  • i hate myself sm
+  • I actually bite myself </p>
+</details>
+
