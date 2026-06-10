@@ -25,3 +25,18 @@
    <3　﹒ 　︵︵      *OH* __go__*d* __I'm_ **beautiful*. OH *go*__d__ I'm __wonderful__ , *I'm* __marvelous__, *intell*__igent__  . __SO__ __WH__*Y* __DOES__*N'T* *TH*AT __MA__*KE* ME __FE__*EL* **BETTER**  .  *I* __ne__*ed* __SOM__*E* *mo*__re__ ,*I* __ne__*ed* __SOM__*E* *o*__ne__ __WHOSE__ *ins*__ecure__  .  __I__ *don't* __ca__*re* WHO  __you__ *are* . __Con__*troll*__ing__ yo*u* *ma*__kes__ __ME__ *BE*__TTE__*R* . ﹢﹒░﹑⬦﹒   <3　﹒ 　︵︵      
    
 𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟
+
+<details>
+  <summary>int</summary>
+  <p>I am free to interact with anyone.</p>
+</details>
+
+<details>
+  <summary>byi</summary>
+  <p>Before you interact...</p>
+</details>
+
+<details>
+  <summary>dni</summary>
+  <p>Do not interact if...</p>
+</details>
