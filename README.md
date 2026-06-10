@@ -28,7 +28,7 @@
 
 <details>
   <summary>int</summary>
-  <p>I am usually with friends , I'm not the type to int first so please come to me , I heavily suck at socializing . I'm really talkative when you get to know me . fandoms that should int with me , The outcasts ( mc smp ) , genshin , gluttomy , dandy's , hilda & harry potter <3.</p>
+  <p>I am usually with friends , I'm not the type to int first so please come to me , I heavily suck at socializing . I'm really talkative when you get to know me . fandoms that should int with me , The outcasts ( mc smp ) , genshin , gluttomy , dandy's , 13 cards , alnst , hilda & harry potter <3.</p>
 </details>
 
 <details>
@@ -43,7 +43,8 @@
 
 <details>
   <summary>About me</summary>
-  <p>Positives about me !
+  <p>
+    Positives about me !
   
   • I really like talking 2 people 
   • I love drawing , dragons and villains ! ( this is heavily targeted to neuvillette, zhongli , pantalone and dottore )
@@ -65,5 +66,30 @@
   • crybaby boohoo
   • i hate myself sm
   • I actually bite myself </p>
+  • attachment problems .
+  • CAN CHANGE DEPENDING ON MY MOOD.
+  • i will not speak to you unless I'm in the mood
 </details>
+
+ <details>
+  <summary>kin</summary>
+  <p>
+    i heavily kin these characters, i don't really care if you hate em 
+
+• dottore 
+• neuvillette
+• collei 
+• sandrone 
+• lyney
+• lynette
+• looey 
+• dazzle 
+• boxten 
+• spade
+• brolly
+• sua
+
+  </p>
+</details>
+
 
