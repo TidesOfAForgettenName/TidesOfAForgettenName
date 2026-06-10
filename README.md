@@ -28,15 +28,15 @@
 
 <details>
   <summary>int</summary>
-  <p>I am free to interact with anyone.</p>
+  <p>I am usually with friends , int freely unless my name says otherwise !! Genshin , dandy's , ocs int.</p>
 </details>
 
 <details>
   <summary>byi</summary>
-  <p>Before you interact...</p>
+  <p>I'd like to warn you that i make dark and suggestive jokes so if you cant handle that iwec or possibly dni . I don't wanna deal with you . I don't really care about religious stuff so don't bring that topic up . If you find me too overwhelming or pressuring just block me atp , I don't really care tbh . Just don't make rumors or drama about me .</p>
 </details>
 
 <details>
   <summary>dni</summary>
-  <p>Do not interact if...</p>
+  <p>basic dni criteria , 25+ ,-12 , overly non-sharing yumes . </p>
 </details>
