@@ -28,7 +28,7 @@
 
 <details>
   <summary>int</summary>
-  <p>I am usually with friends , I'm not the type to int first so please come to me , I heavily suck at socializing . I'm really talkative when you get to know me . fandoms that should int with me , The outcasts ( mc smp ) , genshin , gluttomy , dandy's , 13 cards , alnst , hilda & harry potter <3.</p>
+  <p>I am usually with friends , I'm not the type to int first so please come to me , I heavily suck at socializing . I'm really talkative when you get to know me . fandoms that should int with me , The outcasts ( mc smp ) , genshin , gluttomy , dandy's , 13 cards , alnst , dungeon meshi , spy x family , hilda & harry potter <3.</p>
 </details>
 
 <details>
@@ -76,18 +76,21 @@
   <p>
     i heavily kin these characters, i don't really care if you hate em 
 
-• dottore 
-• neuvillette
-• collei 
-• sandrone 
-• lyney
-• lynette
-• looey 
-• dazzle 
-• boxten 
-• spade
-• brolly
-• sua
+• dottore ( genshin )
+• neuvillette ( genshin )
+• collei ( genshin )
+• sandrone ( genshin )
+• lyney ( genshin ) 
+• lynette ( genshin )
+• looey ( dandy's world )
+• dazzle ( dandy's world )
+• boxten ( dandy's world ) 
+• spade ( 13 cards )
+• brolly ( 13 cards )
+• sua ( alnst )
+• izutsumi ( dungeon meshi )
+• fallin ( dungeon meshi )
+• yuri ( spy x family )
 
   </p>
 </details>
