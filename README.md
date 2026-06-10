@@ -28,7 +28,7 @@
 
 <details>
   <summary>int</summary>
-  <p>I am usually with friends , int freely unless my name says otherwise !! Genshin , dandy's , ocs int.</p>
+  <p>I am usually with friends , I'm not the type to int first so please come to me , I heavily suck at socializing . I'm really talkative when you get to know me . fandoms that should int with me , The outcasts ( mc smp ) , genshin , gluttomy , dandy's , hilda & harry potter <3.</p>
 </details>
 
 <details>
@@ -38,5 +38,5 @@
 
 <details>
   <summary>dni</summary>
-  <p>basic dni criteria , 25+ ,-12 , overly non-sharing yumes . </p>
+  <p>basic dni criteria , 25+ ,-12 , overly non-sharing yumes .Homophobia, racism, etc. Incest/proshippers ||R*pe|| , ||suicide|| jokes. Heavily religious people. spawnism/meowism . Fetishize lgbtqia+ ships. rarepairs haters ( you guys are no fun ).  really horny ppl . scaralumi/scaraether haters </p>
 </details>
