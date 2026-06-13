@@ -85,12 +85,11 @@ Harry Potter <3
 
 • don’t force interaction  
 • i warm up slowly  
-• sarcasm is normal  
-• silence = comfort  
+• sarcasm is normal   
 • i make dark / suggestive jokes
 • Please iwec or block me if you feel uncomf with me 
 • i make puns ( if you don't like em pls tell me )
-• don't colorpick my ponies . heavy inspo is allowed 
+ 
 
 ---
 
