@@ -69,14 +69,7 @@
   • attachment problems .
   • CAN CHANGE DEPENDING ON MY MOOD.
   • i will not speak to you unless I'm in the mood
-</details>
 
- <details>
-  <summary>kin</summary>
-  <p>
-    i heavily kin these characters, i don't really care if you hate em 
-
-     fictionkins 
 
 • dottore ( genshin )
 • neuvillette ( genshin )
