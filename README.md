@@ -87,7 +87,8 @@ Harry Potter <3
 • i warm up slowly  
 • sarcasm is normal   
 • i make dark / suggestive jokes
-• iwec or block me if you feel uncomf with me 
+• iwec or block me if you feel uncomf with me
+
 • i make puns 
  
 
