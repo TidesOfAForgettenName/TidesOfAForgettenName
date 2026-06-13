@@ -33,7 +33,7 @@
 
 <details>
   <summary>byi</summary>
-  <p>I'd like to warn you that i make dark and suggestive jokes so if you cant handle that iwec or possibly dni . I don't wanna deal with you . I don't really care about religious stuff so don't bring that topic up . If you find me too overwhelming or pressuring just block me atp , I don't really care tbh . Just don't make rumors or drama about me .</p>
+  <p>I'd like to warn you that i make dark and suggestive jokes so if you cant handle that iwec or possibly dni . I don't wanna deal with you . I don't really care about religious stuff so don't bring that topic up . If you find me too overwhelming or pressuring just block me atp , I don't wanna be involved . Just don't make rumors or drama about me .</p>
 </details>
 
 <details>
@@ -76,6 +76,8 @@
   <p>
     i heavily kin these characters, i don't really care if you hate em 
 
+     fictionkins 
+
 • dottore ( genshin )
 • neuvillette ( genshin )
 • collei ( genshin )
@@ -91,7 +93,7 @@
 • izutsumi ( dungeon meshi )
 • fallin ( dungeon meshi )
 • yuri ( spy x family )
-
+• finn ( dandy's world )
   </p>
 </details>
 
