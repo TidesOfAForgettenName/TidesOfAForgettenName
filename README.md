@@ -88,7 +88,6 @@ Harry Potter <3
 • sarcasm is normal   
 • i make dark / suggestive jokes
 • iwec or block me if you feel uncomf with me
-
 • i make puns 
  
 
