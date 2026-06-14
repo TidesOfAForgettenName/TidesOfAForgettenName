@@ -87,11 +87,11 @@ Harry Potter <3
 • i warm up slowly  
 • sarcasm is normal   
 • i make dark / suggestive jokes
-• iwec or block me if you feel uncomf with me.                          
- • i make puns
- • i maybe be overly overwhelming and pressuring 
- • can take inspo of my ponies idm
- • i randomly go to diff places 
+• iwec or block me if you feel uncomf with me.                                  
+ • i make puns.                               
+ • i maybe be overly overwhelming and pressuring                               
+ • can take inspo of my ponies idm.            
+ • i randomly go to diff places                        
  
 
 ---
