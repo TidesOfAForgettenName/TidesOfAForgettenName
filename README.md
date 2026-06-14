@@ -157,16 +157,16 @@ scaralumi / scaraether haters
 ### ✦ why I kin them (heavily fictionkins)
 
 **Dottore**  
-→ self-hatred, identity fragmentation, changing how I act depending on who I’m with.
+→ self-hatred, finding identity , changing how I act depending on who I’m with.
 
 **Neuvillette**  
-→ reflection, emotional restraint, holding things in.
+→ reflection, emotional , crybaby maybe
 
 **Sandrone**  
 → emotional distance, pushing people away even if it hurts.
 
 **Lyney**  
-→ masking, trying to act normal around others.
+→ trying to act normal around others.
 
 **Lynette**  
 → introversion, silence, low social energy.
